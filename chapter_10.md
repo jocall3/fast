@@ -1,4 +1,4 @@
-# Chapter 10: The Echoes of Fast
+# Chapter 1: The Echoes of Fast
 
 We have journeyed through the rushing currents, navigated the blinding speeds, and witnessed the profound transformations wrought by 'Fast.' From its unseen whisper in the cosmic dance to its clamorous presence in our daily lives, humanity has strived to understand, to harness, and ultimately, to control this fundamental force. We built empires on its back, charted destinies by its measure, and dreamt of a world where every moment bent to our will, accelerated, optimized, and perfected.
 
